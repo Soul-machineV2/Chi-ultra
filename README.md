@@ -1,5 +1,3 @@
-# Chi-ultra
-A divine project impact with our daily life
 # ✨ Daily Divine Taker Plan
 
 ## 🙏 Prayer
